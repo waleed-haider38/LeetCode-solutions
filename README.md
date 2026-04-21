@@ -85,7 +85,7 @@ If you find this repository helpful:
 ---
 
 ### 📌 Connect with me
-[](https://www.linkedin.com/in/waleed-haider-507805386/)
+https://www.linkedin.com/in/waleed-haider-507805386/
 
 ---
 
